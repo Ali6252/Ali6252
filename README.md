@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **DEEP LEARNING**
 
-- 👯 I’m Interested in **Retail,Health Domain**
+- 👯 I’m Interested in **RETAIL,HEALTH Domain**
 
 - 📫 How to reach me **alinawaz6252@gmail.com**
 
